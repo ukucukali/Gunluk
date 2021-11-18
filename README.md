@@ -1,3 +1,3 @@
 # Gunluk
 
-!()[https://c.tenor.com/ZhfMGWrmCTcAAAAM/cute-kitty-best-kitty.gif]
+![](https://c.tenor.com/ZhfMGWrmCTcAAAAM/cute-kitty-best-kitty.gif)
